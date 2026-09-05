@@ -13,7 +13,7 @@ We all love to share our lives, but sometimes you just want to say something fas
 
 ## Download now and start poking! 👻
 
-[**Google Play**](https://play.google.com/store/apps/details?id=com.slime.poke)
+[**Google Play**](https://lauresure66.github.io)
 
 # Run yourself
 
